@@ -14,7 +14,7 @@ Jack:
 <br><br>
 Simon:
 <br><br>
-Aiden:
+Aidan: (F, G) Did the conclusion and helped with the formatting throughout the whole document.
 <br><br>
 
 
